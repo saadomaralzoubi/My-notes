@@ -4,7 +4,7 @@
 
 ## About me:
 
-good morning saad
+good morning saad alzoubi
 
 hello my name is saad alzoubi im 27 years old i have a bachelor dgree in mechanical engineering and im interested in coding
 
